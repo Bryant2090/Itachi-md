@@ -65,7 +65,7 @@
 ### DEVELOPER:
 **GET In Touch with The Owner**
 - [**On Instagram**](https://instagram.com/BRYANT_TECH.1)
-- [**Via WhatsApp**](https://wa.me/94789178807)
+- [**Via WhatsApp**](https://wa.me/233263176982)
 
 
 
